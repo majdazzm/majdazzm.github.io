@@ -1,1 +1,0 @@
-# majdazzm.github.io
